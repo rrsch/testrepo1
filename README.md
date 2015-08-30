@@ -1,3 +1,3 @@
 The sun is nice
-Just like the spice
+Just like the spices
 I eat every day
